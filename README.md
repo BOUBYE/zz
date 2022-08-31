@@ -1,4 +1,4 @@
-﻿# M4nifest0_Private_RAT
+# M4nifest0_Private_RAT
 👊 M4nifest0 Black Hat Hacking Team™💪
 ============================
 Darknet https://m4nifest0.com/shop👺
